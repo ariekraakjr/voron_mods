@@ -1,1 +1,1 @@
-
+Micron+/front_skirt_middle_3.5_spi_touchscreen/IMG_20240118_140547.jpg
